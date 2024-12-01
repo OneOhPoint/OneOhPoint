@@ -1,4 +1,4 @@
-Hello World!
+When I was a little kid, my mother told me not to stare into the sun. So once, when I was six, I did.
 
 
 
@@ -26,11 +26,6 @@ Hello World!
 
 
 
-
-
-
-
-the abyss stares back at you
                                                                   
                                                                   
 
