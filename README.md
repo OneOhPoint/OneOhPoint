@@ -1,9 +1,7 @@
-
- .--.                    .--. .-.        .---.       _        .-. 
-: ,. :                  : ,. :: :        : .; :     :_;      .' `.
-: :: :,-.,-. .--.  _____: :: :: `-. _____:  _.'.--. .-.,-.,-.`. .'
-: :; :: ,. :' '_.':_____: :; :: .. :_____: :  ' .; :: :: ,. : : : 
-`.__.':_;:_;`.__.'      `.__.':_;:_;     :_;  `.__.':_;:_;:_; :_; 
+ It's fair to say that there are patterns in everything.
+ But the universe is not about patterns. 
+ It's about chaotic turbulence..
+ swirling patterns of unpredictable disturbances.
                                                                   
                                                                   
 
@@ -15,8 +13,6 @@
                                                                                                           
 
 
-
-                                                                                                 
 
 
 
