@@ -1,7 +1,37 @@
- It's fair to say that there are patterns in everything.
- But the universe is not about patterns. 
- It's about chaotic turbulence..
- swirling patterns of unpredictable disturbances.
+When you stare into the abyss, 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+the abyss stares back at you
                                                                   
                                                                   
 
